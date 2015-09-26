@@ -1,0 +1,15 @@
+---
+layout: post
+title: "Tricklestar"
+date: 2010-11-02 12:30:02
+---
+
+Consumers are constantly being advised these days to reduce our standby power usage. However it is not always simple to reach behind your appliances and turn the switch off, or even to remember to do so. A recent development intended to solve that problem is the master-slave powerboard. The concept behind these devices is that the main appliances is treated as the master and any devices which depend on this are the slave. For instance, a monitor is useless without a computer so it is considered a slave. A master-slave power device will ensure that no power is directed to the monitor unless the computer is drawing power. When the computer is turned off, hibernating or sleeping, the monitor will get no power.
+
+The television is similar. It may have a few attached devices, such as a Wii, Xbox, Digital Tuner, DVD player and amplifier. A master-slave powerboard will ensure that those devices do not draw power when the TV is turned off, and even when the TV is on standby. The Trickle Saver is a master-slave device designed for the Television. The Trickle Saver PC is a very simple master-slave powerboard with one master socket and one slave socket. It doesn’t look like a typical powerboard and has an elegant and simple design. It certainly is very easy to use, not that a standard master-slave powerboard is complex at all. TrickleStar have also put significant effort into reducing the environmental impact of the product throughout its complete lifecycle. They claim, “reducing the environmental impact of our products starts at the product design phase and then flows through to manufacturing, use and recycling”. Their products are designed to be as small and use as few materials as possible to reduce the embodied energy in the product. This is the reason that they use a simple product and not a standard powerboard. However this can defeat the purpose if the onwer then has to purchase a separate powerboard. The TrickleSaver also provides the ability to adjust the sensitivity to the master, yet most other master-slave powerboards don’t seem to require this ability, so it is not really necessary.
+
+There are two key limitations of the TrickleSaver TV, and they are big ones. First, most master-slaver powerboards have constant sockets for devices that need constant power, such as Tuners with Hard Disks that need to be set by a timer to record shows. The TrickleSaver does not have a constant socket, so any devices needing constant power need to be plugged into a separate socket or powerboard. Second, the TrickleSaver also has only one outlet, so if you have multiple slaves you will need to use a double-adapter or powerboard to power these devices.
+
+At a price of around $70 (compared to the Jackson master-slave powerboard available at Coles Supermarkets for $50), this device is not cheap. If you want something simple that looks funky, go for it. But otherwise, stick to a regular master-slave powerboard.
+
+**Available in Australia from** <a href="http://www.ambertech.com.au" target="_blank">www.ambertech.com.au</a>

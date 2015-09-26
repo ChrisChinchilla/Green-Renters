@@ -1,0 +1,17 @@
+---
+layout: post
+title: "But everyone else has chickens!"
+date: 2013-06-01 23:32:00
+---
+
+I realise it is the first day of winter in the Southern Hemisphere so I should be writing about cold climate gardening or something. However I am occupied with poultry thoughts.
+
+<span style="line-height: 1.5;">I really, really, really, want chickens in my backyard but the landlord KEEPS saying no. Rotten egg. How do I create my ultra urban super duper permaculture rented garden without them??? Plus, who doesn't love free eggs.</span>
+
+<span style="line-height: 1.5;">Everywhere I turn I hear about people and their lovely backyard chooks. How their chickens come running towards them with glee. How their chickens lay the most delicious fresh eggs. How their poo (the chickens) is just perfect! So I'm left chicken-less to marvel at the joy others seem to be having with their extended chicken families.</span>
+
+<span style="line-height: 1.5;">Pain shared is pain halved so to bring you  along with my torment, I thought I'd share some of the best chicken and chicken-owner mutual admiration shots I could find on the world wide web. Cluck, cluck, cluck. Oh when will my chicken family be complete?</span>
+
+<small><a href="http://2.bp.blogspot.com/-Zj15iNf3zYo/UalRJJlB_YI/AAAAAAAABZI/FYXWKmsBnow/s1600/c7.jpg" imageanchor="1" style="margin-left: auto; margin-right: auto;"><img src="http://2.bp.blogspot.com/-Zj15iNf3zYo/UalRJJlB_YI/AAAAAAAABZI/FYXWKmsBnow/s200/c7.jpg" style="border-width: 0px; border-style: solid; width: 150px; height: 200px; margin: 8px;" /></a><br /> <a href="http://gothswithchickens.tumblr.com/">http://gothswithchickens.tumblr.com/</a><br /> <a href="http://3.bp.blogspot.com/-LDG46FEaPpA/UalRGRS79aI/AAAAAAAABZA/9o6Dad-5oTw/s1600/c8.jpg" imageanchor="1" style="margin-left: auto; margin-right: auto;"><img src="http://3.bp.blogspot.com/-LDG46FEaPpA/UalRGRS79aI/AAAAAAAABZA/9o6Dad-5oTw/s200/c8.jpg" style="border-width: 0px; border-style: solid; width: 160px; height: 200px; margin: 8px;" /></a><br /> <a href="http://pinterest.com/pin/142356038193956818/">http://pinterest.com/pin/142356038193956818/</a><br /> <a href="http://3.bp.blogspot.com/-JDUTEGDyrA4/Ualcfwc0KBI/AAAAAAAABaQ/TEj9Q03WRBI/s1600/tumblr_m9j111VsEr1rxu9x9o1_500.jpg" imageanchor="1" style="margin-left: auto; margin-right: auto;"><img src="http://3.bp.blogspot.com/-JDUTEGDyrA4/Ualcfwc0KBI/AAAAAAAABaQ/TEj9Q03WRBI/s200/tumblr_m9j111VsEr1rxu9x9o1_500.jpg" style="border-width: 0px; border-style: solid; width: 132px; height: 200px; margin: 8px;" /></a><br /> <a href="http://peopleholdingchickens.tumblr.com/"><span style="font-size: xx-small;">http://peopleholdingchickens.tumblr.com/</span></a><br /> <a href="http://1.bp.blogspot.com/-4bi3eq_OV_U/UalRcuULF6I/AAAAAAAABZg/bIBu2C8S-jo/s1600/images+(7).jpg" imageanchor="1" style="margin-left: auto; margin-right: auto;"><img src="http://1.bp.blogspot.com/-4bi3eq_OV_U/UalRcuULF6I/AAAAAAAABZg/bIBu2C8S-jo/s200/images+(7).jpg" style="border-width: 0px; border-style: solid; width: 175px; height: 200px; margin: 8px;" /></a><br /> Colonel Sanders and some chicks...</small>
+
+<small>Main image - <a href="http://www.jokeroo.com/pictures/funny/a-man-holding-his-chicken.html" style="line-height: 1.5;"><span style="font-size: xx-small;">http://www.jokeroo.com/pictures/funny/a-man-holding-his-chicken.html</span></a></small>

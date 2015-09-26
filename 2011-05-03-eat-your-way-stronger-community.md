@@ -1,0 +1,11 @@
+---
+layout: post
+title: "Eat your way to a stronger community"
+date: 2011-05-03 03:34:27
+---
+
+Ever moved into a new neighbourhood and after 6 months realised that you haven't even meet your neighbours? Even in an apartment block where there is only a thin wall separating you from your neighbour, you can go for years without any more than a friendly nod.  
+Renting often sees a high turn over faces, places and neighbourhoods which means that, despite best efforts, it is sometimes hard to connect with the community. We all know the benefits of a strong community and friendly neighbourhood but often we don't know how to engage or start the conversation.  
+Well, here's a suggestion, connect with your community and meet locals over some top notch food and a glass of wine. Just before Christmas last year I hosted a potluck dinner at my house which I organised through <a href="http://www.eatwithme.net" target="_blank">www.eatwithme.net</a> - a new social network that allows you to plan cool food events, post them online and then invite other food-loving locals to join in. 6 people requested to come along to the dinner and, well I have to say, my potluck dinner brought me good luck. It was a fantastic night with neighbours meeting each other, tasting different foods and flavours and sharing recipes. And the neighbourly spirit continued after the dinner with a guest dropping some home-cooked gingerbread men in my letterbox as a season greeting. We have since had plenty of dinners and, even though we are both renters, enjoy that we are neighbours.  
+So if you are living in a sharehouse and tired of eating alone or just want to put some fun back into your community, <a href="http://www.eatwithme.net" target="_blank">www.eatwithme.net</a> is a creative space for fashioning your own pop-up kitchens, cooking class, supper club or sharing home grown produce. <a href="http://www.eatwithme.net" target="_blank">www.eatwithme.net</a> members have already hosted wonton workshops, picnics, pot-luck dinners and restaurant visits. And before you start getting nervous, there’s no pressure to cook if you don’t want to; the emphasis is really on getting together to share food and meet your neighbours.  
+Eat your way to a stronger community and eat with me, or anyone!

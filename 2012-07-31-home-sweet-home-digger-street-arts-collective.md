@@ -1,0 +1,24 @@
+---
+layout: post
+title: "Home Sweet Home: Digger Street Arts Collective"
+date: 2012-07-31 20:19:09
+---
+
+Digger Street arts community is nestled in the heart of the cairns region. It houses artists in a fashion that one could only dream about. Here artists are living communally amongst each others creativity, passion and drive. The buildings on the property are constantly being hugged by a small rainforest that shades luscious gardens, and creates borders for abundant veggie gardens. Organic food from the garden is produced into scrumptious restaurant quality vegetarian meals that are shared all together. Residents say they have not had to go to the supermarket for two years. This truly would be considered a dream world by the majority of people.
+
+This contemporary urban community has held its ground in cairns for the last four years. Playing an active role in the production of arts, events and actions in and around Cairns. This happens in an organic way as arts and projects created here spill into the streets of Cairns. Digger St prides itself on being a base camp and portal for artist and like minded people in Far North Queensland to expose, create, share and develop their idea’s. Whilst engaging in projects and workshops at Digger St it is hard not to be overwhelmed by the wonderful sense of art and community. Being located so close to the CBD Digger St is used by the community as a central meeting hub. Groups meet and enjoy the accessible amenities that make it fun, easy and relaxing to engage with each other.
+
+The idea and concept that people live in tighter communities is not a new one. Digger St has created a contemporary format that allows artist to counter the restrictions of being an artist. This is essentially a new way of looking at urban lifestyles. Turning the isolated communities, and lifestyle of modern society, into a thing of the past. People here truly can grow in a stimulating and productive environment. Innovation has been the key to this community’s success.
+
+Waste has been reduced by up to 75% to that of a conventional household. This is being managed by allowing processes to constantly evolve with the environment and seasons. Due to this constant and evolving creation people are immersed into an environment of immediate action. Participating in the growth and evolution of the foods and resources needed to live is an experience open to all that stay. That is what makes digger street a future model for innovation within an urban landscape.
+
+Having a space for communities to come together, learn, share and evolve together is an asset which urban developers have forgotten about for some time. Cairns, being a centre within FNQ for arts and events production, hinges on the success of places like this.  
+“Digger Street is the place you go an live in to learn how to create new urban spaces.” This is how one live in artist has described Digger St and its workings. They follow by speaking about the fact that in all their artistic career it shows that,  
+ “doing is the best way of learning……Digger St allows maximum experiential learning….this is what someone needs to focus on new ways of thinking.”  
+Production of new concepts, ideas, and projects are potent in this idyllic urban  community.
+
+What makes it also amzing is 85% of it is self funded by the artists themselves and has drawn no money from any etxternal funding organisations other than private sector donations
+
+Many artist’s from around the globe have utilised Digger St, and with an ever growing following more and more topics are being served by this space. Artivism is a concept born from activism, here at Digger St artivist are working hard to get issues attention in the most peaceful ways possible, art. Housing a base camp and drop in canter for pro-active persons, Digger St shows its support for an ever evolving society. These artivist work on engaging with community about issues that affect them and expose them through the means of art.
+
+Music producers band together and perform and produce music events and collaborations. Music in Australia has never been fresher than the sounds FNQ are serving up to the rest of our nation. Sculpturist’s are bending the rules of art everyday utilising resources unimaginable to the common person. Art and social awareness has now got a place to meet, expand and educate. Digger St arts collective is a must do stop in, you cant understand the possibilities of the art world in FNQ without dropping in for a cup of tea. Full moon parties, sunset sessions and friendly people are just a few reason as to why this space is a new milestone in the evolution and expanding innovation of urban living. Definitely a design that people should consider looking at in a very fast paced and ever changing contemporary society.
